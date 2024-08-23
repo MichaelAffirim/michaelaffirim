@@ -1,2 +1,3 @@
 # michaelaffirim
-a story about myself 
+a story about myself.
+
