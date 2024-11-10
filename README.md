@@ -1,3 +1,3 @@
 #michaelaffirim
-I just start to be a programmer again.
+I just Started.
 
